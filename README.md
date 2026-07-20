@@ -6,7 +6,7 @@
 
 ╰┈  .Delain or sp8 ꯴ 17 y.o. || .He / him
        
-  > .Autistic Weirdo with Bipolar ADHD & amnesua
+  > .Autistic Weirdo with Bipolar ADHD & amnesia
 
 
 
