@@ -4,12 +4,12 @@
 
 ## ㅤㅤㅤㅤGREETINGS
 
-╰┈  .Mascelious or Marylya ꯴ 15 Cupiospike, .He / it
+╰┈  .Delain or sp8 ꯴ 17 y.o. || .He / him
        
-  > .Autistic Weirdo with Bipolar NPD & ASPD
+  > .Autistic Weirdo with Bipolar ADHD & amnesua
 
 
 
 
 
-## > .kill me
+## > .fuck you
